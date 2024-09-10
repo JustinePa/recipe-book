@@ -21,6 +21,7 @@
 - 0.5 tsp ground cloves
 - 2 eggs
 - some chocolate chunks
+- more cinnamon
 
 
 ## Instructions
